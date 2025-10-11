@@ -8,7 +8,7 @@
 
 Things started off great and exciting until 1 night changed the entire weekend when the lifeless and bloody body of Brittney Kearson was found while everyone was out in the nightclub , so famous private investigator ***Dr. Whodunnit*** is called and he starts investigating? 
 
-[DID KEENAN DO IT OR WAS HE FRAMED?](./choice-1.md)
+[SOOO, WHO DUNNIT?](./choice-1.md)
 
 
 
