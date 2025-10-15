@@ -19,7 +19,7 @@ Immersive Storytelling: A gripping narrative with twists and turns.
 No Setup Required: Play directly on GitHub—no downloads or installations needed.
 
 
-📂 File Structure
+## 📂 File Structure
 
 _start-here.md: The main interactive story file.
 README.md: This file, providing an overview of the project.
