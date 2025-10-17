@@ -6,14 +6,14 @@ As soon as you say that, the lights go off and turn back on. 2 people were gone.
 
 ### **SOOOOOOOO, WHO RAN?**
 
-[Tom and Lisa](./scene5A.md)
+[Tom and Lisa](./scene4C.md)
 
 OR
 
-[Keenan and ???](./scene5B.md)
+[Keenan and ???](./scene5A.md)
 
 OR
 
-[The 2 people that was never interrogated](./scene5C.md)
+[The 2 people that was never interrogated](./scene5B.md)
 
 

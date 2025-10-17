@@ -14,9 +14,9 @@ Hmmm 🤔 Does he realize he just changed his story? I thought he was just told 
 
 From what is being told to you, everyone is still a subject! 
 
-[Do you wish continue your questions with Keenan?](./scene4B.md)
+[Do you wish continue your questions with Keenan?](./scene4A.md)
 
 OR 
 
-[Do you know who did it based off what you know?](./scene4C.md)
+[Do you know who did it based off what you know?](./scene4B.md)
 
