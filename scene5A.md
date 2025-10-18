@@ -1,5 +1,5 @@
 
-Even though Tom seemed like an easy option as he could have possibly not wanted the baby Brittney was carrying, his journal that he later turned in suggests that he loved Brittney and wanted to be with her. 
+Even though Keenan seemed like an easy option as the husband is always the first suspect.
 
 THIS IS NOT WHODUNNIT!!! 
 

@@ -2,15 +2,15 @@
 
 ### INTERROGATING THE HOSTS ❓
 
-You interroagate them both and they both have the same exact responses. 
+You interrogate them both and they both have the same exact responses. 
 
 It's almost as if they rehearsed it.
 
 You try to pin them against each other but they don't budge. 
 
-They both suddenly remembered that Keenan was upset with Brittney over something and that Brittney left suddenly and that Keenan followed angrily.
+They both suddenly remembered that Tom was upset that Rachel and Leah told everyone about the affair that him and Brittney was having so he stormed out.
 
-**THEY DON'T BUDGE SO YOU LET THEM GO AND START PREPARING FOR KEENAN'S INTERROGATION**
+**THEY DON'T BUDGE SO YOU LET THEM GO AND START PREPARING FOR TOM'S INTERROGATION**
 
-[Go back to interrogate Keenan](./scene2B.md)
+[Go back to interrogate Tom](./scene2B.md)
 

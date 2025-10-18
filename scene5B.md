@@ -1,16 +1,10 @@
 # WHODUNNIT
 
-Keenan killed his wife. It's another case of a jealous and angry husband not being able to control his emotions and just walk away.
+Silly goose. They had no reason to run. They were already ruled out as suspects.
 
-He could have left. He could have just never spoke to her again. 
-
-After you have already left the room, you hear commotion coming from Keenan's interrogation room.
-
-You walk up as he is getting arrested and he reiterates, "I DIDN'T DO THIS ALONE!"
-
-You finally give in to his theory that he wasn't alone and you let him speak
+TRY AGAIN
 
 
-[Soooo, WHO HELPEDEM?](./scene5C.md)
+[Go back](./scene3C.md)
 
 

@@ -11,10 +11,10 @@ As soon as you say that, the lights go off and turn back on. 2 people were gone.
 
 OR
 
-[Keenan and ???](./scene5A.md)
+[Keenan and Lisa](./scene5A.md)
 
 OR
 
-[The 2 people that was never interrogated](./scene5B.md)
+[Rachel and Leah](./scene5B.md)
 
 
