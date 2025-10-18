@@ -2,7 +2,7 @@
 
 ### 🔥 Applying Pressure 
 
-TOM JUST SWITCHED HIS STORY. KEENAN AND LISA SOUNDS REHEARSED. GET DEEPER INTO QUESTIONS WITH THE SPOUSE AS THEY ARE ALMOST ALWAYS THE CULPRIT.
+TOM WAS SLEEPING WITH BRITTNEY. KEENAN AND LISA SOUNDS REHEARSED. GET DEEPER INTO QUESTIONS WITH THE SPOUSE AS THEY ARE ALMOST ALWAYS THE CULPRIT.
 
 You show Tom a crime scene photo of Brittney and ask him "How could you do this to the woman you say you loved?" Tom starts to bounce his leg up and down, you can tell your're starting to get under his skin a little. You push it a step further and mumble "You know we got a finger print on the knife and it comes back to you Tom."
 
